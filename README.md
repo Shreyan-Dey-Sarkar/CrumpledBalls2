@@ -1,2 +1,2 @@
-# Output Link: https://shreyan-dey-sarkar.github.io/CrumpledBalls2/
+# output link: https://shreyan-dey-sarkar.github.io/CrumpledBalls2/
 
